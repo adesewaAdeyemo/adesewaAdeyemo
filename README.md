@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @adesewaAdeyemo
-- 👀 I’m interested in money from the project i work on
+- 👀 I’m interested in making money from the projects i work on
 - 🌱 I’m currently learning front-end development
 - 💞️ I’m looking to collaborate on interesting ideas
 - 📫 How to reach me adeyemoadesewa54@gmail.com
